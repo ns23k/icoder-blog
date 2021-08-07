@@ -4,5 +4,5 @@
 
 [CodeWithHarry](https://www.youtube.com/c/codewithharry)
 
-# announcment
+# announcement
 sorry guys this would take a lot of time due to my exams,please stay tuned
